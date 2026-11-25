@@ -5,3 +5,5 @@ https://skylrkworldwide.com/hoodies/
 https://skylrkworldwide.com/tracksuit/
 # skylark clothing
 https://skylrkworldwide.com/
+# skylrk beanie
+https://skylrkworldwide.com/beanie/
